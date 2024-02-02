@@ -1,1 +1,1 @@
-My name is Kristoffer Chacha and I'm currently undertaking a course by the name Bachelor in Business Information Technology(BBIT)at Strathmore University.From my early age i  wondered how are games created and how do they come out so clear to an extent my parents would think that it is real.This created a sense of curiousity and i  wanted to know  more as even sometimes my parents would refuse me to play certain games because the would say"It looks so realistic" and for this i developed a passion for game development and in this portfolio i present some of my projects.>
+
